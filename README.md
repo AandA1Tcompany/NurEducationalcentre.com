@@ -49,9 +49,9 @@ This educational center is dedicated to empowering students with high-quality le
 
 If you'd like a custom website or have questions:
 
-- Telegram: [@nur_centre_admin](https://t.me/username)
-- WhatsApp: [+1234567890](https://wa.me/1234567890)
-- Email: nurcentre@gmail.com
+- Telegram: https://t.me/+mJFk8amGmlI0OTQy
+- WhatsApp: +992 98 728 5533
+- Email: nureducationalcentre@gmail.com
 
 ---
 
